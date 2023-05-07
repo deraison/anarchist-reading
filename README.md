@@ -22,3 +22,5 @@ Armed Joy by Alfredo Bonanno
 How Non-Violence Protects the State by Peter Gelderloos
 
 The Master's Tools: Warfare and Insurgent Possibility by Tom Nomad
+
+The Wretched of Earth by Frantz Fanon
