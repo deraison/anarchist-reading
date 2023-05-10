@@ -52,17 +52,24 @@ Anticiv Anarchy
 
 Against His-story, Against Leviathan - Fredy Perlman
 
-"" baedan
+baedan de novo
 
 Against the Megamachine - David Watson
 
 John Zerzan:
+
 Running into emptiness: the failure of symbolic though
+
 Language: Origin and Meaning
+
 Number: Its Origin and Evolution
+
 Time and its Discontents 
+
 The Case Against Art
+
 Agriculture
+
 Alone Together: The City and its Inmates 
 
 Ishmael - Daniel Quinn
