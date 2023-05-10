@@ -74,4 +74,8 @@ Alone Together: The City and its Inmates
 
 Ishmael - Daniel Quinn
 
+Anthropology and Anarchism by Brian Morris
 
+Society Against the State by Pierre Clastres
+
+The Art of Not Being Governed: An Anarchist History of Upland Southeast Asia by James C. Scott
